@@ -1,4 +1,4 @@
-
+stealth Scripts for one tap is the best one tap Script, featuring auto-upgrade and one-hit kill. Safe and powerful for all your needs.
 
 
 
